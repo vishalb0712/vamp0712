@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @vamp0712
 - 👀 I’m interested in Blockchain Technology
-- 🌱 I’m have currently completed graduation. 
+- 🌱 I have currently completed  my graduation in the field of Bsc Computer Systems and Engineering. 
 - 💞️ I’m looking to work on Blockchain projects.
 - 📫 How to reach me vishalb0712@gmail.com
 
